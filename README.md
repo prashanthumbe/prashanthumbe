@@ -1,5 +1,4 @@
-### Hi there__ 👋
-Hey there, I'm Prashant Humbe 👋
+### Hey there, I'm Prashant Humbe 👋
 📌 Here are a few things that describe me:
 
 💫 About Me:
